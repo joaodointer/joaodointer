@@ -1,2 +1,2 @@
-Fala quebra joaodointer falando meu perfil ter o objetivo de ser chave
+Fala quebrada joaodointer falando meu perfil ter o objetivo de ser chave
 é isso
