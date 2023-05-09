@@ -4,5 +4,4 @@ Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
 
 
 
-
 ![](https://tenor.com/pt-BR/view/inter-porto-alegre-gif-20185773)
