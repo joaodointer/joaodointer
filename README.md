@@ -30,4 +30,4 @@ Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
 
 
 
-![](https://media.tenor.com/cutrJaMWjVMAAAAM/sport-club-internacional-soccer.gif)                              ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.espn.com.br%2Ffutebol%2Fartigo%2F_%2Fid%2F6759548%2Frenato-diz-que-inter-sempre-comeca-brigas-nos-jogos-contra-o-gremio&psig=AOvVaw1Y7IkYXXM9ITGWYJvGnidn&ust=1683802238481000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCNj19q_K6v4CFQAAAAAdAAAAABAH)
+![](https://media.tenor.com/cutrJaMWjVMAAAAM/sport-club-internacional-soccer.gif)                              ![](https://media.tenor.com/9v89C1z51O8AAAAM/beira-rio.gif)
