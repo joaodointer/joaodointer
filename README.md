@@ -35,4 +35,4 @@ Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
 
 
 
-![](https://media.tenor.com/T4HlfLswF40AAAAM/andres-dalessandro.gif)                                            ![](https://media.tenor.com/Q5CfQ3279bQAAAAM/galhardo-e-heitor.gif)https://media.tenor.com/Q5CfQ3279bQAAAAM/galhardo-e-heitor.gif
+![](https://media.tenor.com/T4HlfLswF40AAAAM/andres-dalessandro.gif)                                            ![](https://media.tenor.com/Q5CfQ3279bQAAAAM/galhardo-e-heitor.gif)
