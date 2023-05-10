@@ -20,3 +20,9 @@ Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
 
 
 ![](https://media.tenor.com/frEMTfoOh30AAAAM/inter-porto-alegre.gif)                                          ![](https://media.tenor.com/f6rfgEJWRCcAAAAM/internacional-club-wc.gif)
+
+
+
+
+
+![](https://media.tenor.com/vOfa1XxhXsgAAAAM/internacional.gif)
