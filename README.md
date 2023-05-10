@@ -31,3 +31,8 @@ Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
 
 
 ![](https://media.tenor.com/cutrJaMWjVMAAAAM/sport-club-internacional-soccer.gif)                              ![](https://media.tenor.com/9v89C1z51O8AAAAM/beira-rio.gif)
+
+
+
+
+![](https://media.tenor.com/T4HlfLswF40AAAAM/andres-dalessandro.gif)
