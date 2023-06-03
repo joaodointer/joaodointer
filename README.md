@@ -1,5 +1,4 @@
-Fala quebrada joaodointer falando meu perfil tem o objetivo de ser chave
-é isso
+Mas bah gurizada João Vitor Richzik ou joaodointer falando sou aluno do Colégio Estadual Cívico Militar Tarquinio Santos e estudo no 1° A NEM aqui irão ficar alguns dos meus projetos do Github
 
 
 
