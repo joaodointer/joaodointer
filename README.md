@@ -1,4 +1,5 @@
 *Mas bah gurizada joaodointer falando sou aluno do Colégio Estadual Cívico Militar Tarquinio Santos e estudo no 1° A NEM aqui irão ficar alguns dos meus projetos do Github*
+**Meu Instagram: jvrichzik**
 
 
 
